@@ -21,7 +21,7 @@ I love building digital products that **look beautiful, work seamlessly, and del
 From responsive designs to scalable backend systems — I turn ideas into **user-friendly solutions**.  
 
 📍 Based in Rajkot, Gujarat, India  
-📧 Reach me at: **[dipakparmar2007@gmail.com](mailto:mr.dipakparmar2007@gmail.com)**  
+📧 Reach me at: **[mr.dipakparmar2007@gmail.com](mailto:mr.dipakparmar2007@gmail.com)**  
 📄 [Download Resume](https://docs.google.com/document/d/1QOL0-Gxaj9XKEueajdev0AFQFXdqdRXTShJlI6OHMvw/edit?usp=sharing)
 
 ---
